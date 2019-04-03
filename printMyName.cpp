@@ -1,0 +1,1 @@
+mi se printa imeto
